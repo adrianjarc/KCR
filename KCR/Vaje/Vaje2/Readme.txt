@@ -1,0 +1,1 @@
+Tukaj je Urejevalnik besedil ki smo ga naredili na drugih vajah.

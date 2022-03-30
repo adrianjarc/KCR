@@ -1,0 +1,1 @@
+Tu se nahaja menjalnica ki smo jo naredili na prvih vajah. To je cel paket ki ga preprosto odzippate in odprete z NetBeans.
